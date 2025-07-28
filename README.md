@@ -1,0 +1,1 @@
+# ismagames-privacy-policy
